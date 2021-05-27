@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @le-jpg
+- 👀 I’m interested in learning programming
+- 🌱 I’m currently learnin
+- 💞️ I’m looking to collaborate with anyone who is ready to teach me
